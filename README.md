@@ -1,0 +1,1 @@
+# Zotac-ZT-T20600H-10M-graphics-card-GeForce-RTX-2060-6-GB-GDDR6
